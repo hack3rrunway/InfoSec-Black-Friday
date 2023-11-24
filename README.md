@@ -534,6 +534,11 @@ https://shop.miscreants.com/
 (1) 20% off everything + free sticker pack with code: ROSEBUD (Only valid through Nov 27th 11:59pm)  \
 (2) 10% off everything with code: CYBER10 (Deal ends December 30th, 11:59pm)
 
+Hack3r Runway Clothing and Accessories \
+https://hack3rrunway.square.site/  
+25% off storewide Small Business Saturday \
+Deal Ends: 25 November
+
 ## Books:
 Springer Apress Cybersecurity eBooks \
 https://link.springer.com/shop/springernature/cyber-fixed-price-sale-cybersecurity-ethicalhacking/en-us/  
